@@ -8,5 +8,3 @@ Respositório de como funciona.
 Saiba mais em meu Linkedin [
 Gostou do curso? Quer mais? Ajude-nos.]
   sadfsafsdfsdf Opa beleza?
-
-  sorry man 
