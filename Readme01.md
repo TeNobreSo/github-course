@@ -8,4 +8,4 @@ Respositório de como funciona.
 Saiba mais em meu Linkedin [
 Gostou do curso? Quer mais? Ajude-nos.]
 Opa beleza?
-Olá razão da minha libido
+Olá razão da minha libido, lindo
